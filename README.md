@@ -1,0 +1,1 @@
+# A-decad-ncia-do-planeta-terra-e-a-es-que-podem-reverter-isso
